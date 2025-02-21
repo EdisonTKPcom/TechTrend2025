@@ -131,7 +131,7 @@ The tech landscape in 2025 is shaped by rapid advancements in AI, blockchain, qu
 
 ## How to Contribute
 - Feel free to suggest updates, add case studies, or contribute insights.
-- Contact: [Your Contact Information]
+- Contact: [im@edisontkp.com]
 
 ---
 
